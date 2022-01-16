@@ -1,4 +1,4 @@
-### Hi there I' Gauri Dighe👋
+### Hi there I'm  Gauri Dighe👋
 
 <!--
 **Gauri1709/Gauri1709** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
